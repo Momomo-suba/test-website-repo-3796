@@ -1,6 +1,6 @@
 ---
-title: Accueil
+title: Chair de Boule
 ---
-# L'Échappée Belle
+# Chair de Boule
 
-L'Échappée Belle est **une association** qui a pour objet de soutenir et promouvoir des activités et des personnes qui travaillent autour de **valeurs de consentement, de bien commun et de prendre soin des personnes et de l’environnement**.
+Ce petit magazine en ligne est là pour donner des frissons, de longs frissons, **sombres et moelleux**, ou de piquants frissons _vifs et clairs_.
