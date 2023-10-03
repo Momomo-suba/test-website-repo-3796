@@ -2,6 +2,11 @@
 title: "Les abdos de la tôlière"
 order: 4
 ---
+# mardi 3 octobre 2023 21:23
+
+La petite chattonne (si petite, vous remarquerez, qu'elle a l'adjectif pour le dire ET le suffixe "-onne" à la fin de son nom pour le redire) envisage une reconversion. Elle est vive, elle a déjà tué plusieurs pigeons, enfin tué non, mais attrapés au col et laissés à l'agonie, oui, et elle sait ce qu'elle veut. La carrière de demi-coach semi-witch la tente, car elle se devine vraiment instinctive. Elle n'a pas encore conscience de son manque chronique de sens du sacrifice, mais dès qu'elle va s'en rendre compte, elle va élargir ses options - vive, vous vous rappelez ?
+
+
 # lundi 2 octobre 2023 23:16
 
 Il faut bien commencer, sinon il y a toujours des prétextes. 
