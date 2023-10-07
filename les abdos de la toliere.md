@@ -2,6 +2,14 @@
 title: "Les abdos de la tôlière"
 order: 4
 ---
+## samedi 7 octobre 08:07
+
+Rectification : ce n'est pas qu'elle ne pense pas, c'est que sa pensée ne prend pas la même forme que celle des humains qu'elle fréquente. 
+Détective, voilà son nouveau job. Elle profite d'une tablette laissée allumée pour lui demander de parler de sa nouvelle activité. La tablette, chance pour la petite chatte, vient d'être mise à jour et son nouvel assistant intelligent a bien l'option du langage inter-espèce. Il galère avec les animaux peu domestiques, surtout les grenouilles, mais pas de souci niveau félin.
+
+
+
+
 ## mercredi 4 octobre 23:34
 
 Elle ne pense pas. Elle laisse ses instincts parcourirent son corps. Dès le réveil, une nouvelle piste pour son changement de job, elle réalise qu'elle a toujours aimé résoudre les problèmes. Ce qu'elle préfère, c'est les débusquer puis s'amuser avec, jusqu'à en trouver un nouveau plus frais.
