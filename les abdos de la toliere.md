@@ -2,6 +2,14 @@
 title: "Les abdos de la tôlière"
 order: 4
 ---
+## vendredi 13 octobre 22:22
+
+J'ai réussi à être triste pour le monsieur qui enseignant aussi "le français" quand j'ai arrêté de surveiller mon absence de réaction émotionnelle à la nouvelle de ce meurtre. Le récit assez précis de la façon dont le jeune homme a attaqué ce lycée m'a aidée, comme d'habitude, parce que les personnes sont devenues des formes compréhensibles. Dominique qui a essayé d'arrêté l'avancée du jeune meurtrier. Un monsieur qui s'occupe de l'intendance blessé profondément, je peux imaginer la moustache de Rémy et ses blagues que je trouvais un peu forcées et réconfortantes le midi l'an passé.
+Comme la voix de la dame qui habitr à Gaza et qui a très peur de mourir à cause d'une explosion, il n'y a pas d'abri correct dans sa ville. Comme le jeune homme israëlien, lui a l'âge du jeune meutrier franco-russo-tchétchène (je ne suis pas sûre de sa nationalité ?) et il cherche sa sœur de 18 ans, il parle très factuellement pour l'interview mais le journaliste ajoute qu'il "partage sans relâche" la photo de sa sœur et le message de recherche et là je peux imaginer les moments misérables où tu repostes compulsivement parce que tu ne peux pas faire plus pour elle. 
+Apparemment, le jeune homme meurtrier a demandé où le prof d'histoire. Ce détail me rend bizarrement encore plus dépitée et confuse. Ça m'inquiète. Je ne me dis pas que je préfèrerai qu'il ait recherché le prof de sport ou de sciences ou de français. Mais je crois que (j'aurai préféré qu'il fasse une sieste et qu'il adopte un animal solitaire bien sûr) j'aurai trouvé moins horrible qu'il ne cherche rien de précis. Son attaque me semblerait plus floue, sans visée assez rationnelle pour que je capte un message. Le message que je reçois de ce jeune meurtrier, c'est que sa colère (je ne sais pas si cette émotion le guidait, ou la peur, ou le désir d'intensité, ou le besoin d'appartenance ?) a une structure, un début de discours.
+
+
+
 ## samedi 7 octobre 08:07
 
 Rectification : ce n'est pas qu'elle ne pense pas, c'est que sa pensée ne prend pas la même forme que celle des humains qu'elle fréquente. 
