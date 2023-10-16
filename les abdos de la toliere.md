@@ -2,6 +2,11 @@
 title: "Les abdos de la tôlière"
 order: 4
 ---
+## lundi 16 octobre 22:55
+
+C'est une illusion, mais j'ai parfois l'impression de comprendre de manière claire la jeune élève qui ne parle pas encore français. Ce matin j'ai dû utiliser l'outil de traduction de google pour lui expliquer la minute de silence de l'après-midi, et c'était assez froid de me lire taper dans la zone source "Il va y avoir une minute de silence cet après-midi. C'est en hommage à un professeur qui a été tué vendredi." Les yeux de MR se sont écarquillées et elle a eu une sorte de sourire effrayée. Ensuite, je n'ai pas très bien compris ce qu'elle m'a dit, c'était une phrase rapide et confuse pour moi en anglais. Je crois qu'elle me disait sa peur des jugements sur elle, qui est musulmane, mais vraiment j'étais incertaine. Elle me l'a répété, j'ai essayé de la rassurer, mais nous ne nous sommes pas vraiment comprise. Je ne sais pas si c'est à cause de ces bugs de compréhension, ou malgré eux, mais je me suis sentie dans une zone honnête, d'incofort nécessaire.
+
+
 ## vendredi 13 octobre 22:22
 
 J'ai réussi à être triste pour le monsieur qui enseignant aussi "le français" quand j'ai arrêté de surveiller mon absence de réaction émotionnelle à la nouvelle de ce meurtre. Le récit assez précis de la façon dont le jeune homme a attaqué ce lycée m'a aidée, comme d'habitude, parce que les personnes sont devenues des formes compréhensibles. Dominique qui a essayé d'arrêté l'avancée du jeune meurtrier. Un monsieur qui s'occupe de l'intendance blessé profondément, je peux imaginer la moustache de Rémy et ses blagues que je trouvais un peu forcées et réconfortantes le midi l'an passé.
