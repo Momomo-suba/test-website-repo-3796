@@ -2,6 +2,14 @@
 title: "Les abdos de la tôlière"
 order: 4
 ---
+## mardi 17 octobre 22:32
+
+Je suis déçue de moi, ce soir. J'ai l'impression de ne pas trouver le bon mouvement, les bons mots, les bons rebonds pour faire de la salle où j'essaye de faire ce truc très composite qu'est enseigné un endroit tranquille, où les gamin'es vont dans leur majorité travailler sur ce que je leur propose avec allant. Rien qu'en l'écrivant, comme ma collègue avant moi, je sens bien l'ambition adorable et naïve qui habite dans ma petite caboche. Je n'ai pas réussi, tout à l'heure, avec mes élèves de 5e. Quelques un'es ont un peu essayé. Non, je me flagelle. Une bonne moitié a bien essayé. Trois ou quatre élèves ont plutôt fait l'inverse, donc soit s'embrouiller, soit bavarder, soit tenter un humour burlesque. C'est intéressant : je n'ai pas puni les embrouilleur'euses ou les bavard'es, j'ai puni le clown le plus visible. Pas encore une leadeuse ou une cheffe de meute, donc. J'ai un peu peur que les élèves finissent par me voir comme une humaine dépassée et faiblarde. Est-ce grave de l'être parfois ?
+
+Idée pour l'appel à nouvelles "De cape et d'épée" : des insectes bretteur'euses.
+
+
+
 ## lundi 16 octobre 22:55
 
 C'est une illusion, mais j'ai parfois l'impression de comprendre de manière claire la jeune élève qui ne parle pas encore français. Ce matin j'ai dû utiliser l'outil de traduction de google pour lui expliquer la minute de silence de l'après-midi, et c'était assez froid de me lire taper dans la zone source "Il va y avoir une minute de silence cet après-midi. C'est en hommage à un professeur qui a été tué vendredi." Les yeux de MR se sont écarquillées et elle a eu une sorte de sourire effrayée. Ensuite, je n'ai pas très bien compris ce qu'elle m'a dit, c'était une phrase rapide et confuse pour moi en anglais. Je crois qu'elle me disait sa peur des jugements sur elle, qui est musulmane, mais vraiment j'étais incertaine. Elle me l'a répété, j'ai essayé de la rassurer, mais nous ne nous sommes pas vraiment comprise. Je ne sais pas si c'est à cause de ces bugs de compréhension, ou malgré eux, mais je me suis sentie dans une zone honnête, d'incofort nécessaire.
