@@ -1,7 +1,16 @@
 ---
 title: "Les abdos de la tôlière"
 order: 4
+in_menu: true
 ---
+## jeudi 2 novembre 19:52
+
+Le pouce a un petit bandage en plastique, je sens que je suis amoureuse de Loïc, que je joue à appeler mon époux avec un plaisir entre l'ironie et la naïveté - j'espère en secret qu'il plait à d'autres femmes, qu'elles sont amoureuses de lui quelques secondes mais pas trop longtemps, comme quand moi je tombe amoureuse quelques secondes d'autres hommes ou d'autres femmes. 
+J'ai du mal à faire le lien entre l'intensité des sensations affectives et les meurtres qui ont eu lieu il y a quelques semaines. J'essaye de me mettre dans la peau des hommes que j'ai vu sur la vidéo et qui disaient Dieu est grand très souvent. J'essaye de ne pas me mettre dans celles des hommes et des femmes qui ont été tués quand iels s'amusaient, parce que cela me fait trop peur. J'essaye de me mettre dans les murs des hommes et des femmes qui savent que des missiles très efficaces vont peut-être faire exploser leur appartement. Je n'y arrive pas bien. Je devine que c'est lié à ma vie bourgeoise d'humaine française qui n'a jamais eu froid, faim ou soif plus de quelques minutes.
+Je me concentre sur les fois où j'ai peur des tirs des chasseurs quand je promène le chien pas loin des bois. J'additionne avec le stress quand je me dis que notre eau n'est pas si potable. Avec la colère, l'insolence et le désarroi quand je discute avec un policier qui va sans doute me gazer quand l'ordre viendra. Il faudrait ensuite tout multiplier par 1000. Je n'y arrive pas vraiment. Malgré cet échec je sens qu'il y a de quoi arriver à un certain niveau de désespoir furieux.
+
+
+
 ## mardi 17 octobre 22:32
 
 Je suis déçue de moi, ce soir. J'ai l'impression de ne pas trouver le bon mouvement, les bons mots, les bons rebonds pour faire de la salle où j'essaye de faire ce truc très composite qu'est enseigné un endroit tranquille, où les gamin'es vont dans leur majorité travailler sur ce que je leur propose avec allant. Rien qu'en l'écrivant, comme ma collègue avant moi, je sens bien l'ambition adorable et naïve qui habite dans ma petite caboche. Je n'ai pas réussi, tout à l'heure, avec mes élèves de 5e. Quelques un'es ont un peu essayé. Non, je me flagelle. Une bonne moitié a bien essayé. Trois ou quatre élèves ont plutôt fait l'inverse, donc soit s'embrouiller, soit bavarder, soit tenter un humour burlesque. C'est intéressant : je n'ai pas puni les embrouilleur'euses ou les bavard'es, j'ai puni le clown le plus visible. Pas encore une leadeuse ou une cheffe de meute, donc. J'ai un peu peur que les élèves finissent par me voir comme une humaine dépassée et faiblarde. Est-ce grave de l'être parfois ?
