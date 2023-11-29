@@ -3,6 +3,14 @@ title: "Les abdos de la tôlière"
 order: 4
 in_menu: true
 ---
+## mercredi 29 novembre 01:46
+
+Je me demande s'il y a des élèves rebelles dans les écoles religieuses hyper sélect. Comment s'exprime leur rébellion ? Je ne suis pas sûre qu'il y a des "putain" qui sortent aussi facilement que de la bouche du fieffé Mimosa de ma classe de 5e. J'ai envie d'être un staphyllocoque doré sur le nez d'un'e d'entre eux pour voir comment font mes collègues plus doué'es/expérimenté'es. 
+
+Pendant ce temps-là, dans une banette en plastique gris très ennuyeuse, l'apprentie détective Thémis Roucquemouth médite. Elle nettoie ses interstices des morceaux de musaraigne qui pourraient y moisir. 
+
+
+
 ## jeudi 2 novembre 19:52
 
 Le pouce a un petit bandage en plastique, je sens que je suis amoureuse de Loïc, que je joue à appeler mon époux avec un plaisir entre l'ironie et la naïveté - j'espère en secret qu'il plait à d'autres femmes, qu'elles sont amoureuses de lui quelques secondes mais pas trop longtemps, comme quand moi je tombe amoureuse quelques secondes d'autres hommes ou d'autres femmes. 
