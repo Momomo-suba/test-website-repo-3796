@@ -3,6 +3,12 @@ title: "Les abdos de la tôlière"
 order: 4
 in_menu: true
 ---
+## lundi 4 décembre 23:22
+
+C'est comme si je lisais la boucle des messages écolos des hypothétiques camarades depuis un hublot lointain. Un écho de ma radio et de sa cop vingtetrouze à Dubaï traine en fond sonore. Un des mecs là-bas, un sultan, a un discours proche d'un mec ici, un maire d'un bled proche du tracé d'une potentielle autoroute idiote. Les deux mecs sont plutôt sereins sur le futur et aiment sans doute beaucoup leurs voitures thermiques. Le maire a dans les 60 balais, le sultan, je ne le sais pas. Une petite de 6e a essayé, elle a suivi mes consignes trop détaillées de près en s'y perdant, mais l'effort était beau. Est-ce me mentir si je m'attarde sur elle plutôt que sur mes moments d'échecs du jour ? Un élève de 4e qui n'y croit presque plus a fini un exercice avec mon aide. Il n'avait pas bien compris non plus que c'était pour s'entrainer, il a cru qu'il avait gagné des points, je me suis sentie conne en lui disant que non, que c'était pour essayer plus tard d'en gagner. Je suis cependant bien plus perdue que lui en ce qui concerne ma compréhension du réel. Ce serait une justice poétique que quelqu'un'e se sente con'ne de me décevoir à ce sujet mais le fasse quand même. Je ne comprends pas les gars qui font des attaques sur des touristes, des collègues ou bien des habitant'es dans le déni de leur colonisation, mais je comprends que parfois des gens essayent de tuer des président'es ou des sultans. Ou juste de leur cracher sur le nez. 
+
+
+
 ## mercredi 29 novembre 01:46
 
 Je me demande s'il y a des élèves rebelles dans les écoles religieuses hyper sélect. Comment s'exprime leur rébellion ? Je ne suis pas sûre qu'il y a des "putain" qui sortent aussi facilement que de la bouche du fieffé Mimosa de ma classe de 5e. J'ai envie d'être un staphyllocoque doré sur le nez d'un'e d'entre eux pour voir comment font mes collègues plus doué'es/expérimenté'es. 
