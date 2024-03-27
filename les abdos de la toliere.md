@@ -1,7 +1,7 @@
 ---
 title: "Les abdos de la tôlière"
 order: 2
-in_menu: true
+in_menu: false
 ---
 ## lundi 4 décembre 23:22
 
