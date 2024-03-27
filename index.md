@@ -1,8 +1,8 @@
 ---
-title: "Chair de Boule"
+title: "Les Chroniques de Déville Hameau"
 order: 1
-in_menu: false
+in_menu: true
 ---
-# Chair de Boule
+# She's a Déville
 
-Ce petit magazine en ligne est là pour donner des frissons, de longs frissons, **sombres et moelleux**, ou de piquants frissons _vifs et clairs_.
+76660, bitch. 
