@@ -13,9 +13,6 @@ C'est comme si je lisais la boucle des messages écolos des hypothétiques camar
 
 Je me demande s'il y a des élèves rebelles dans les écoles religieuses hyper sélect. Comment s'exprime leur rébellion ? Je ne suis pas sûre qu'il y a des "putain" qui sortent aussi facilement que de la bouche du fieffé Mimosa de ma classe de 5e. J'ai envie d'être un staphyllocoque doré sur le nez d'un'e d'entre eux pour voir comment font mes collègues plus doué'es/expérimenté'es. 
 
-Pendant ce temps-là, dans une banette en plastique gris très ennuyeuse, l'apprentie détective Thémis Roucquemouth médite. Elle nettoie ses interstices des morceaux de musaraigne qui pourraient y moisir. 
-
-
 
 ## jeudi 2 novembre 19:52
 
@@ -44,24 +41,6 @@ J'ai réussi à être triste pour le monsieur qui enseignant aussi "le français
 Comme la voix de la dame qui habitr à Gaza et qui a très peur de mourir à cause d'une explosion, il n'y a pas d'abri correct dans sa ville. Comme le jeune homme israëlien, lui a l'âge du jeune meutrier franco-russo-tchétchène (je ne suis pas sûre de sa nationalité ?) et il cherche sa sœur de 18 ans, il parle très factuellement pour l'interview mais le journaliste ajoute qu'il "partage sans relâche" la photo de sa sœur et le message de recherche et là je peux imaginer les moments misérables où tu repostes compulsivement parce que tu ne peux pas faire plus pour elle. 
 Apparemment, le jeune homme meurtrier a demandé où le prof d'histoire. Ce détail me rend bizarrement encore plus dépitée et confuse. Ça m'inquiète. Je ne me dis pas que je préfèrerai qu'il ait recherché le prof de sport ou de sciences ou de français. Mais je crois que (j'aurai préféré qu'il fasse une sieste et qu'il adopte un animal solitaire bien sûr) j'aurai trouvé moins horrible qu'il ne cherche rien de précis. Son attaque me semblerait plus floue, sans visée assez rationnelle pour que je capte un message. Le message que je reçois de ce jeune meurtrier, c'est que sa colère (je ne sais pas si cette émotion le guidait, ou la peur, ou le désir d'intensité, ou le besoin d'appartenance ?) a une structure, un début de discours.
 
-
-
-## samedi 7 octobre 08:07
-
-Rectification : ce n'est pas qu'elle ne pense pas, c'est que sa pensée ne prend pas la même forme que celle des humains qu'elle fréquente. 
-Détective, voilà son nouveau job. Elle profite d'une tablette laissée allumée pour lui demander de parler de sa nouvelle activité. La tablette, chance pour la petite chatte, vient d'être mise à jour et son nouvel assistant intelligent a bien l'option du langage inter-espèce. Il galère avec les animaux peu domestiques, surtout les grenouilles, mais pas de souci niveau félin.
-
-
-
-
-## mercredi 4 octobre 23:34
-
-Elle ne pense pas. Elle laisse ses instincts parcourirent son corps. Dès le réveil, une nouvelle piste pour son changement de job, elle réalise qu'elle a toujours aimé résoudre les problèmes. Ce qu'elle préfère, c'est les débusquer puis s'amuser avec, jusqu'à en trouver un nouveau plus frais.
-
-
-## mardi 3 octobre 2023 21:23
-
-La petite chattonne (si petite, vous remarquerez, qu'elle a l'adjectif pour le dire ET le suffixe "-onne" à la fin de son nom pour le redire) envisage une reconversion. Elle est vive, elle a déjà tué plusieurs pigeons, enfin tué non, mais attrapés au col et laissés à l'agonie, oui, et elle sait ce qu'elle veut. La carrière de demi-coach semi-witch la tente, car elle se devine vraiment instinctive. Elle n'a pas encore conscience de son manque chronique de sens du sacrifice, mais dès qu'elle va s'en rendre compte, elle va élargir ses options - vive, vous vous rappelez ?
 
 
 ## lundi 2 octobre 2023 23:16
