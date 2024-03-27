@@ -1,5 +1,7 @@
 ---
-title: Chair de Boule
+title: "Chair de Boule"
+order: 1
+in_menu: false
 ---
 # Chair de Boule
 
